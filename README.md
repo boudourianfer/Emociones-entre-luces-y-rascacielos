@@ -1,1 +1,2 @@
 # Emociones-entre-luces-y-rascacielos
+Entre rascacielos, reflejos y parques iluminados, cada boda en Nueva York es una coreografía natural. El desafío es capturar lo invisible, aquello que ocurre entre palabras, en una mirada o en una pausa compartida. Sin forzar escenas, las fotos revelan un vínculo genuino que se funde con la ciudad. Todo sucede en tiempo real, con la sensibilidad como guía principal.
